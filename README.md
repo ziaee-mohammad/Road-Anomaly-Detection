@@ -344,5 +344,7 @@ Please follow the instructions in the [**`do this setup.md`**](https://github.co
 ## 👨🏻‍💻 Author
 **Mohammad Ziaee**  
 [LinkedIn](https://www.linkedin.com/in/mohammad-ziaee) • [GitHub](https://github.com/ziaee-mohammad)
+👉 Instagram: [@ziaee_mohammad](https://www.instagram.com/ziaee_mohammad/)
+
 
 
